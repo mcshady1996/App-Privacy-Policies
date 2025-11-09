@@ -89,7 +89,7 @@ I may update this Privacy Policy to reflect changes in the App or legal requirem
 If you have questions, requests, or concerns about this Privacy Policy or my data practices, please contact:
 
 Rick McFadden
-Email: privacy@rickmcfadden.com
+Email: mcshady1996@gmail.com
 (Replace the email address above with your preferred contact address before publishing.)
 
 ---
